@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kimsearle
-- 👀 I’m interested in Astrophysics and plants
+- 👀 I’m interested in all things space
 - 😄 Pronouns: her/she (like the chocolate)
 - ⚡ Fun fact: Uranus was originally named George’s Star, after King George III
 
